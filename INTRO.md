@@ -4,6 +4,7 @@ We think you should have a chance to become a TRX Millionaire. How does it work 
 
 ## How to vote for us as Tron SR?
 Through the following url you can find more information about the voting process and how to vote:
+
 [Click here to learn how to vote](https://medium.com/tron-foundation/how-to-vote-for-super-representatives-d81d14d9743d)
 
 ## How often will you hold a lottery?
