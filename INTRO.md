@@ -1,4 +1,4 @@
-## What would you do with 1.000.000 TRX?!
+## Use some of your SR votes to become a TRX Millionaire
 We think you should have a chance to become a TRX Millionaire. How does it work you might ask? It’s easy. With your TRX you can vote for us to become one of the Super Representatives. After a month as Tron SR we’ll give away 85% of the earned rewards by holding the biggest Tron lottery. One of you will win the huge payout which will be expected to be around 1.000.000 TRX.
 
 ### Want to know the best part? 
