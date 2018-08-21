@@ -6,7 +6,9 @@ Voting is completely risk free and it won’t cost you any money. Want to increa
 
 
 
+
 ![more votes = more chance](https://raw.githubusercontent.com/tronlottery/tronsr-template/master/TL_visual_3000_votes.png)
+
 
 
 
